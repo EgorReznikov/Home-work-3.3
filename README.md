@@ -6,3 +6,4 @@
 
 Мой вам совет “Улыбайтесь”
 
+![404d6a30-8c15-41be-a439-6dd697f376d5](https://user-images.githubusercontent.com/113996999/194964083-755fca6d-4a55-4b4c-bcad-4ea3a2600204.jpg)
